@@ -1,0 +1,1 @@
+# -Multiple-Prosesor-Multiprosesor-Symmetric
